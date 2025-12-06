@@ -1,7 +1,5 @@
 ## Hi everyone 👋🙋‍♂️
 
-**Happy 6 months of Aspxone 🎉 and Happy November!**
-
 About us:
 
 - 🔭 I’m currently chilling
